@@ -1,2 +1,0 @@
-# Ai-jinu
-Ishkirin fichar
